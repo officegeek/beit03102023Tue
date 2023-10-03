@@ -1,2 +1,6 @@
-# beit03102023Tue
-BEIT Kursus
+# BEIT Kursus
+- fdsfsd
+- sfsd
+- dfgdfg
+
+xddgfdgf df gdfgdfg
